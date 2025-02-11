@@ -8,7 +8,7 @@
 
 👉👉 Click to play，3rd Version: [Sprunkstard](https://sprunkipyramixed.com/sprunkstard/ "Sprunkstard")
 
-Enter the unsettling world of Sprunkstard - where music meets mustard! This haunting mod transforms the [ Incredibox](https://sprunksters.com/sprunkstard/#) experience with an all-encompassing yellow theme and eerie soundscapes.
+Enter the unsettling world of Sprunkstard - where music meets mustard! This haunting mod transforms the Incredibox experience with an all-encompassing yellow theme and eerie soundscapes.
 
 Sprunkstard reimagines musical gameplay through its unique mustard-yellow aesthetic. The mod features characters bathed in haunting yellow hues, each contributing to an unsettling yet captivating musical experience.
 
